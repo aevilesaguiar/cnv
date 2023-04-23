@@ -102,6 +102,9 @@ Por que eu decidi?
 
 ![image](https://user-images.githubusercontent.com/52088444/233864486-1db142cf-726a-4d9b-a8be-50196673edb4.png)
 
+CNV não é sobre passividade.
+![image](https://user-images.githubusercontent.com/52088444/233864610-35a8a324-f6f4-4e17-90da-6debca99f156.png)
+
 
 
 
