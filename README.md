@@ -105,6 +105,65 @@ Por que eu decidi?
 CNV não é sobre passividade.
 ![image](https://user-images.githubusercontent.com/52088444/233864610-35a8a324-f6f4-4e17-90da-6debca99f156.png)
 
+![image](https://user-images.githubusercontent.com/52088444/234080185-53f3e692-f309-4490-a3f7-d57e8fe4804d.png)
+
+## 4 ELEMENTOS DA cnv
+
+![image](https://user-images.githubusercontent.com/52088444/234080361-81bec286-25c3-4de0-a0ac-02a1b1f3bcfd.png)
+
+4 elementos essenciais para termos uma comunicação não violenta.
+
+## Observações
+
+![image](https://user-images.githubusercontent.com/52088444/234080581-6b3b9d59-d584-43ee-acb9-92fe3dc05de1.png)
+
+Separar o julgar de Observar
+
+![image](https://user-images.githubusercontent.com/52088444/234080767-44d56fa9-0b23-42ce-8281-3131a56eaf0b.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234081019-c408efc2-542b-4bf8-942d-527f00dd8970.png)
+
+## Eu observador
+No modo Girafa eu deixo essas coisas na gaveta, eu direciono esse olhar para fatos acontecimentos e situações.
+
+![image](https://user-images.githubusercontent.com/52088444/234081186-e29daf19-c1e6-4775-a2ba-6b158df642db.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234081387-0a60130b-1c43-4df0-bc18-d94bd2ff7f52.png)
+
+- Olhar da girafa curioso
+![image](https://user-images.githubusercontent.com/52088444/234081651-c0c9b03b-edd4-4143-8335-9a5c636c591f.png)
+
+
+Na CNV tentamos ter um olhar mais responsivo que reativo.
+
+![image](https://user-images.githubusercontent.com/52088444/234081812-5b5966fe-9d0a-4e1f-a30d-cf3827f823ed.png)
+Exercicios como respiração e observar para refletir.
+
+![image](https://user-images.githubusercontent.com/52088444/234082027-03719de7-e061-44fe-9922-d5da6d3226ff.png)
+
+## Exemplos
+
+![image](https://user-images.githubusercontent.com/52088444/234082163-12376443-ba54-46c1-8770-0846c5f95a88.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234082406-5409fedb-ce67-49d6-83a1-15d16a061ce2.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234082814-88d63aa6-4f5c-458a-83a8-f714200744c7.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234082959-3a91f2a7-68ac-493b-872c-779c87009fd3.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234083183-e6918753-a21c-4def-90fd-f84b87aa4dc5.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234083249-00b88f49-4f57-4d7e-b68e-9666912ddeaf.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234083598-3aa22447-026d-4c34-a930-d01c06001d7b.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234084580-b644472b-f39e-467a-bd94-25a50d75911e.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234084802-30db4a96-327d-4bd4-b4ab-78cdc0937639.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234085016-f356f514-16ea-41c1-9698-e00ce39c69e6.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234085179-08f6fc68-d447-4870-93a2-abeabe3ea6a2.png)
 
 
 
