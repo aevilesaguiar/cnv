@@ -165,5 +165,56 @@ Exercicios como respiração e observar para refletir.
 
 ![image](https://user-images.githubusercontent.com/52088444/234085179-08f6fc68-d447-4870-93a2-abeabe3ea6a2.png)
 
+## Necessidades
+
+![image](https://user-images.githubusercontent.com/52088444/234854221-53f7d667-71ed-4a21-91de-598d76b4f39a.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234854260-ff57d774-708d-43dd-b26e-10cc7361f2f8.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234854648-8c1e1635-e4bd-40b3-b63c-6b2e32d9459b.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234854859-9334672a-6a8c-4b9d-b0e2-8a35555ed7ea.png)
+
+![image](https://user-images.githubusercontent.com/52088444/234855423-34d8225d-a555-490b-9138-db6d2d068106.png)
+
+**Necessidades
+
+![image](https://user-images.githubusercontent.com/52088444/234862944-af9c95c7-339c-4e70-9d8c-b3380367e435.png)
+
+Necessidades Humanas
+![image](https://user-images.githubusercontent.com/52088444/234863471-a83417fc-4ac4-4bc8-bdb8-5411a225761d.png)
+
+Sentimentos são a linguagem das necessidades.
+
+
+![image](https://user-images.githubusercontent.com/52088444/234863830-b4ba677e-5279-434a-9804-695db0aff25c.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
